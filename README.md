@@ -1,1 +1,1 @@
-![image](https://cdnb.artstation.com/p/assets/images/images/030/532/559/large/abrar-khan-venom-x-carnage-x-antivenom.jpg?1600882492)
+![image](https://user-images.githubusercontent.com/56048647/147796859-b77fc59c-140a-4136-878a-19bbe3be9040.png)
