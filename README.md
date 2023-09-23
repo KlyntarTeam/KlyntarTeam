@@ -1,1 +1,1 @@
-![image](https://user-images.githubusercontent.com/56048647/147796887-30e46443-e3eb-4db1-b81b-963ea97a77c2.png)
+![image](https://github.com/KlyntarTeam/KlyntarTeam/assets/56048647/edcfadca-c13e-4a68-a003-ec2fe69a58c7)
